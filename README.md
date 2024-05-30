@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DrettiBones
-- 👀 I’m interested in ... Music- producing, recording,aaa mixing, mastering 
+- 👀 I’m interested in ... Music- producing, recording, mixing, & mastering 
 - 🌱 I’m currently learning ... how to adult to my utmostqq ability
 - 💞️ I’m looking to collaborate on ... music, album art, promoting artists
 - 📫 How to reach me ... Drettibones@gmail.com 
